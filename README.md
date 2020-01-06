@@ -23,12 +23,11 @@ Os objetivos principais da VSAT Space Program são:
 Com seu apoio poderemos checar aos nossos objetivos!
 Podemos contar com você?
 
-* [apoia.se](https://apoia.se/vsatspaceprogram).
 * [vakinha](https://www.vakinha.com.br/vaquinha/vsat-space-program-seu-nome-no-espaco-projeto-cubesat)
 
 ### Mídias Sociais
 
-* [VSAT Facebook](https://www.facebook.com/vsatspaceprogram/).
+* [VSAT Facebook](https://www.facebook.com/vsataerospace/).
 * @vsatspaceprog
 * [Spotify](https://lnkd.in/eaR_4qe)
 
